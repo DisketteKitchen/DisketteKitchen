@@ -1,0 +1,4 @@
+- Hi, I’m Coffeus
+- I’m interested in old Macs and computers in general
+- I also run the YouTube channel [Diskette Kitchen](youtube.com/@diskettekitchen)
+- My preffered pronouns are: They/Them/Theirs
